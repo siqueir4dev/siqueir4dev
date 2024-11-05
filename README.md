@@ -1,4 +1,4 @@
-### Oi sou apenas um estudante de 17 anos eu esdtudo no curso Técnico em Informática para Internet e tenho uma grande paixão pela área de T.I meu objetivo é seguir meus estudos em engenharia de software pra aprofundar meus conhecimentos na área to sempre animado com as possibilidades que essa área oferece e sempre busco aprender mais 👨‍💻
+### Oi sou apenas um estudante de 17 anos eu estudo no curso Técnico em Informática para Internet e tenho uma grande paixão pela área de T.I meu objetivo é seguir meus estudos em engenharia de software pra aprofundar meus conhecimentos na área to sempre animado com as possibilidades que essa área oferece e sempre busco aprender mais 👨‍💻
 
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/andrey-siqueira-1bb88b306)
 
